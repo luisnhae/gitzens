@@ -1,11 +1,3 @@
 
-
-B
-
-
-Githubi
-
-Arquivo da aula de github para iniciant
-
-
-Esse
+Com sublime é mais fácil! 
+Por favor! QUE COISA LINDA! 
