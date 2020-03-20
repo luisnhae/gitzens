@@ -1,5 +1,3 @@
+Me sigam no twitter: 
 
-Com sublime é mais fácil! 
-Por favor! QUE COISA LINDA! 
-
-Donate, never! Í need more coffee! 
+https://twitter.com/luisnhae
