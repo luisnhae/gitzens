@@ -19,3 +19,5 @@ print("seconds: ",s)
 #existem formas de fazer isso mais rapido
 #houve entraves mentais
 #pesso desculpas caso algum programador experiente veja isso
+
+#Perseverança
