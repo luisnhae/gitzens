@@ -1,1 +1,1 @@
-Já lavou as mãos?! 
+Parem com o Covid-19
