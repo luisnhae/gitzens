@@ -1,1 +1,1 @@
-Parem com o Covid-19
+Para cada conceito, crie algo novo! 
